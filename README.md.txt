@@ -1,2 +1,0 @@
-HI I AM ALI
-I AM NOT A PRO
